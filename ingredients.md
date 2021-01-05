@@ -1,0 +1,1 @@
+Ingredients: Any anmount of Meatballs, a 1:1 ratio serving of Spagetti aporximately equal to the size and amount of Meatballs you will make, a 2:1 ratio of Marinara Sauce to Spagetti, a 1:3 ratio of Parmesan Cheese to Spaghetti, a 1:3 ratio of Salt to Spaghetti, a 1:3 ratio of Olive Oil to Spaghetti, a teaspoon of chopped Garlic, Oregano, and resturant serving amount of Pepper.
